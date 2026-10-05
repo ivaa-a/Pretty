@@ -6,6 +6,12 @@ Question:
 
 3\. What is your favorite movie (series)?
 
+Thomas:
+
+1. Rocket League
+2. Impractical Jokers
+3. Five Nights at Freddy's
+
 Viktor:
 1. Skyrim
 2. Jojo's

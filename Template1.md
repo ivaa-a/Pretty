@@ -12,3 +12,8 @@ Thomas:
 2. Impractical Jokers
 3. Five Nights at Freddy's
 
+
+suge
+1.Apex Legends
+2.Gurren Laggan
+3.pacific rim
